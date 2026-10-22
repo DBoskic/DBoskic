@@ -27,4 +27,4 @@ Client code is private; summaries only.
 
 [LinkedIn](https://www.linkedin.com/in/dboskic/) · [Upwork](https://www.upwork.com/freelancers/~014c8b0cc344ac78c1) · [CV](https://vpof.it/boskic.com/) · [VP of IT](https://vpof.it)
 
-Serbian, Bosnian, Croatian (native) · English (fluent) · Spanish (conversational)
+Serbian, Bosnian (native) · English (fluent) · Spanish, Croatian (conversational)
